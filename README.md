@@ -1,4 +1,4 @@
-# InfraProyectos
+# InfraProyectos Biografia
 
 Hola soy salvador Mendiola Talabera Nací el 24 de julio del año 2000 nací en la ciudad de México milpa alta los primeros años 
 de mi vida vivía en Tijuana baja california después cuando estuve en el kínder vivía en Guerrero Ciudad Altamirano todos estos 
